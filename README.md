@@ -2,4 +2,4 @@
 
 I study in Netology
 
-09.10.2024
+06.11.2024
